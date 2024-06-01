@@ -2,7 +2,7 @@
 - 👀 I’m interested in family and bonds....as well as technology and computing
 - 🌱 I’m currently learning an Undergraduate degree in Computer Science at Kwame Nkrumah University of Science and Technology (KNUST)
 - 💞️ I’m looking to collaborate on a lot of projects
-- 📫 How to reach me ...wa.me/+233536746852 on Whatsapp
+- 📫 How to reach me ...https://wa.me/+233536746852 on Whatsapp
 - 
 - ⚡ Fun fact: ...4Ts...simply means ...Thrilling Twists...Timeless Truths
 
